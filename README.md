@@ -1,0 +1,1 @@
+# gumoryst.github.io
